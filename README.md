@@ -1,0 +1,1 @@
+# savekarta_hu_malik
